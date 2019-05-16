@@ -1,1 +1,1 @@
-![](2.PNG)# lab2-kpp
+![](MMLf1EcDnmc.PNG)# lab2-kpp
