@@ -1,1 +1,1 @@
-# lab2-kpp
+![](2.PNG)# lab2-kpp
